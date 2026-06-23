@@ -1,7 +1,9 @@
 # ThomasJamesHomesReviews.com
-A website dedicated to share my experience where Thomas James Homes (TJH) / TJH.com decided to bury evidence and gaslight thinking they did a fantastic job. 
+A website dedicated to share my experience where Thomas James Homes (TJH) / TJH.com decided to bury evidence and gaslight thinking they did a fantastic job.
 
-Now you may visit this page having experienced the same from the company or their employees. Feel free to send any Pull Requests detailing your experience along with the employee names and I will be happy to include it. 
+A part of me wondered that if they did this to me with such ease, then they probably have a playbook to pull this off. Dig deep they said and here we are.
+
+Now you may visit this page, having experienced the same from the company or their employees. Feel free to send any Pull Requests detailing your experience along with the employee names and I will be happy to include it. 
 
 Remember you are showing the courage -- so that the next innocent family does not go through what you did. Just because a few evil people decided to line their pockets at the expense of hard-working innocent people, doesn't mean the world is that way. You coming out and sharing your experience is what makes this world capable of good. Do not fear evil or retaliation from TJH. Their hired guns (or outside counsel) wont be able to take your voice. Nishanth will stand with you till the end ! 
 
